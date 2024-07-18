@@ -1,6 +1,6 @@
-Internship Journey at MedTech Solutions
+Internship Journey at Zealous Commerce
 Overview
-Welcome to the detailed overview of my internship journey at MedTech Solutions. This document outlines the daily tasks, topics covered, and projects completed during the internship.
+Welcome to the detailed overview of my internship journey at Zealous Commerce. This document outlines the daily tasks, topics covered, and projects completed during the internship.
 
 Week 1
 Day 1: 15/05/2024 (Wednesday)
